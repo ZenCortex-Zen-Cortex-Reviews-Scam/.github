@@ -12,7 +12,7 @@ In today's noisy world, hearing loss has become an increasingly common problem, 
 
 ## ❱❱ Where to Buy : 🛒 ⏭ 👉👉 CLICK HERE TO ORDER NOW ✅ 👉👉
 
-[# ⏭ First Use Then Trust ⏭ Click Here Now to Order from the Official Website Today! ⏭](https://rebrand.ly/e8e1ab)
+# [⏭ First Use Then Trust ⏭ Click Here Now to Order from the Official Website Today! ⏭](https://rebrand.ly/e8e1ab)
 
 # What is ZenCortex?
 
